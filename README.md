@@ -1,0 +1,1 @@
+# Comjunto_componetes_simples
